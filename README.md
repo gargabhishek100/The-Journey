@@ -1,0 +1,4 @@
+Hare Krsna Hare Krsna
+Krsna Krsna Hare Hare
+Hare Rama Hare Rama
+Rama Rama Hare Hare
